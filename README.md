@@ -1,6 +1,6 @@
 # 肥猫云机场官网地址
 
-最新地址：[fatcatcf.com](https://www.fatcatcloud.cc/register?aff=lPuccBrK)
+最新地址：[fatcatcf.com](https://fcweb01.fatcatcloud.cc/register?aff=lPuccBrK)
 
 ## 肥猫云介绍
 
